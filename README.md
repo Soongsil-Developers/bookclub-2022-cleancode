@@ -57,4 +57,5 @@
 
 ---
 
-📄 [1회차 질문지](https://forms.gle/y763eTiFw6tGG7RX8)
+📄 [1회차 질문지](https://forms.gle/y763eTiFw6tGG7RX8)  
+📄 [2회차 질문지](https://forms.gle/EaqxytkiLQKrCj9Z7)
